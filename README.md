@@ -7,5 +7,3 @@ STORY PUBLIC LINK-https://public.tableau.com/app/profile/anbuselvi.a/viz/wholesa
 
 VIDEO DEMONSTRATION LINK-https://drive.google.com/file/d/12LPigTjCUoIG4_94UhCxJ3tkPhnr6eG5/view?usp=sharing
 
-
-
